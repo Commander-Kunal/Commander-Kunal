@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on to make medium level projects
 - 📫 How to reach me.....
 - Email:kunalg318@gmail.com
-- Instagram ID : k.u.n.a.l._.g.u.p.t.a
+- Instagram ID : @k.u.n.a.l._.g.u.p.t.a
 - 😄 Pronouns: He/Him/His
 - ⚡ Fun fact: Got my hands on Computers at age 2🙂
 
