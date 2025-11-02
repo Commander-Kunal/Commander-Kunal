@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Commander-Kunal
+- 👋 Hi, I’m @Commander-Kunal aka KUNAL GUPTA
 - 👀 I’m interested in modern Computer Technologies like chatbots, data analytics, etc.....
 - 🌱 I’m currently learning beginners' concepts. Also appreciate ur recommendations😊
 - 💞️ I’m looking to collaborate on to make medium level projects
